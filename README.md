@@ -1,4 +1,4 @@
 # About me
 
-- 🌱 I’m currently learning IT (Software Engineering at HCMUS-VNU
+- 🌱 I’m currently learning IT (major in Software Engineering) at HCMUS-VNU
 
