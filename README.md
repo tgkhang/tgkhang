@@ -1,4 +1,4 @@
 # About me
 
-- 🌱 Student at FIT-HCMUS-VNU
+- 🌱 FIT-HCMUS-VNU
 
