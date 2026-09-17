@@ -1,4 +1,4 @@
 # About me
 
-- 🌱 FIT-HCMUS-VNU
+Nothing, a person just want to create something
 
